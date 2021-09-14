@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @scgmap
+- 👀 I’m interested in programming, wakeboardike, bikeriding
+- 🌱 I’m currently learning in School 21 
+- 📫 Reach me on e-mail gvolibea@student.21-school.ru
